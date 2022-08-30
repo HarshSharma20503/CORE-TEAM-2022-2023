@@ -1,6 +1,7 @@
 # CORE-TEAM-2022-2023
 
 **PRESIDENT**- LUV CHADHA<br/>
+<img src="https://lh4.googleusercontent.com/p-myDp3zmNC_GvkWlV2Eiol2RWcn-QmoIyoiWocT-gRWQTr91K5k4e3sCofbLFmdNos=w2400"alt="Vice president photo" style="float: left; margin-right: 10px;" />
 **VICE PRESIDENT**- ADITI AGGARWAL<br/>
 **TREASURER**- AYUSH THAKUR<br/>
 **SECRETARY**- SHREYA KHOSLA<br/>
